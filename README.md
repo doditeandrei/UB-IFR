@@ -1,2 +1,6 @@
-# UB-IFR
-universityh
+Hello stranger,
+
+After an amazing experience during my first european youth exchange project in Croatia I´ve decided to do more with my life. My first goal was to be a volunteer and to learn as many new things as possible that could help me in my personal and professional development. 
+After a period of 2 years in AIESEC Iasi I can say that I've learned many great things who made me the person I am today. After this period I've decided to change my career aspiration and I've started a new master program (International Business and Intercultural Strategies) and joined a beautiful team in Continental Automotive Iasi since 2016. 
+Since joining Continental's beautiful QKAM team I've spend 3 years making a lot of savings for Continental's plants in Czech Republic because I've worked with warranty complaints, but the most important part is that I've created new connections and friends in this special team and they've all contributed to my professional career + lots of great memories together.
+2018 was like a spike in my life and I took the decision to search for a more dynamic career and in this direction I've applied to Pentalog's QA intership where I've consolidated my software testing theory followed by practicing agile testing in 2 awesome projects inside Pentalog Iasi. All my missions are described below :D
